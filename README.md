@@ -1,1 +1,2 @@
-# reformation-of-the-deadbeat-noble
+# Reformation of the Deadbeat Noble
+Après avoir assisté impuissant à la mort de sa mère, le jeune Airen Parreira profite du sommeil pour échapper à la dure réalité, ce qui lui vaut le surnom de « Seigneur paresseux ». Pourtant, malgré ce que les autres disent de lui, Airen n’a pas l’intention de changer ses habitudes. Mais la vie de ce dernier va prendre un tout autre tournant lorsqu’un jour il se réveille d’un rêve sur un mystérieux épéiste.
